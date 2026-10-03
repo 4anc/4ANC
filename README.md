@@ -1,5 +1,5 @@
 
-rmking this shit bomb me
+rmking this shit bombs myself
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
 <p align="center">  ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ . 𝘍𝘰𝘳 𝘐 𝘢𝘮 𝘮𝘢𝘯𝘺
